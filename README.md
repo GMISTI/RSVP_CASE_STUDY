@@ -1,0 +1,1 @@
+RSVP Movies, an established Indian film production company renowned for its numerous blockbuster hits, has primarily focused on catering to the Indian audience with its film releases. However, for their upcoming venture slated for 2022, they are poised to venture into the global market with a movie tailored for an international audience.
